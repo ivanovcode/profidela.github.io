@@ -1,3 +1,5 @@
-[Нажмите для перехода на ПОРТФОЛИО](https://drive.google.com/drive/folders/1lJ4ScrcTK32ocKkvuz6hB1tDQCAESDk6?usp=sharing)
+Если вы видите эту страницу, значит вы проявили больший интерес чем кто либо другой, ваше внимание к деталям не маловажно для меня, а так же поспособствует правильному выбору. Предлагаю вам перейти в мое [ПОРТФОЛИО](https://drive.google.com/drive/folders/1lJ4ScrcTK32ocKkvuz6hB1tDQCAESDk6?usp=sharing) и посмотреть [СКРИНКАСТ](https://www.youtube.com/watch?v=-gOvTm7osD8) с рассказом о крайнем проекте.
 
-[А, здесь, мой видео рассказ о последнем проекте](https://www.youtube.com/watch?v=-gOvTm7osD8)
+
+
+
